@@ -7,4 +7,4 @@ Saiba mais em [williamjusten.com.br](http://williamjusten.com.br)
 
 As casas são construídas para que se viva nelas, não para serem olhadas.
 
-[!paypal](https://www.paypal.com/donate/?hosted_button_id=DYKSYG4L2EDGW)
+[!paypal]([https://www.paypal.com/donate/?hosted_button_id=DYKSYG4L2EDGW](https://gohorseprocess.com.br/extreme-go-horse-xgh/))
